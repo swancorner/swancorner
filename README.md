@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @swancorner
+- 👀 I’m interested in hal hal yang membuat senang
+- 🌱 I’m currently learning Kodding
